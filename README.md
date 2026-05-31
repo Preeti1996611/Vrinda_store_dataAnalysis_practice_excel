@@ -28,3 +28,7 @@ Location: Focus campaigns exclusively on residents of Maharashtra, Karnataka, an
 
 Execution: Deploy targeted ads, exclusive offers, and discount coupons specifically through Amazon, Flipkart, and Myntra to meet the audience where they already shop.
 
+
+<img width="1861" height="705" alt="vrinda_img" src="https://github.com/user-attachments/assets/d068a6f8-8fba-46a0-a0c6-8e3bb1b71e3f" />
+
+
